@@ -4,6 +4,4 @@ For a while now Ben has been making and selling single handed accessibility cont
 
 View the episode: http://www.element14.com/community/docs/DOC-79286/l/episode-213-ben-hecks-controller-mods-tutorial-episode
 
-Join the element14 community - http://bit.ly/1Xpgpc3
-
-Learn more about Brady - http://bit.ly/1lIepAb
+Join the element14 community - http://www.element14.com/tbhs
